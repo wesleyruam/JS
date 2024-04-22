@@ -16,5 +16,3 @@ Como refletido no meu currículo, estou comprometido em aplicar minhas habilidad
 Estes scripts têm sido uma ferramenta valiosa, simplificando tarefas e aumentando a eficiência no nosso trabalho diário. Estou ciente de que com aprimoramento contínuo das minhas habilidades e conhecimento, posso ir ainda mais longe.
 
 ---
-
-Sinta-se à vontade para ajustar conforme necessário ou adicionar mais informações específicas!
