@@ -1,5 +1,3 @@
-Claro, aqui está uma versão melhorada do texto para o README.md:
-
 ---
 
 ## Sobre os Scripts
